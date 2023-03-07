@@ -1,0 +1,1 @@
+# Etkili-sekizli-g-zl-klere
